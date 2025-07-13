@@ -1,2 +1,2 @@
 # hanandsoul
-“A music project bridging Korean Han and global Soul.”
+“A music project bridging “Korean emotional depth and global soul”
